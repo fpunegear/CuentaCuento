@@ -4,4 +4,6 @@
 
 ## Cony decidió seguir la flor mágica y descubrió que lo llevaba a un lago encantado. Allí se encontró con un sapo sabio que le enseñó el valor de la amistad y la importancia de ayudar a los demás.
 
-## por lo tanto de ahí en adelante, el conejo se dedicó a ayudar a los demás hasta que finalmente fue considerado un santo.
+## Por lo tanto de ahí en adelante, el conejo se dedicó a ayudar a los demás hasta que finalmente fue considerado un santo.
+
+## Cientos de años después, surgió un gato que admiraba mucho la historia del conejo Cony, y decidió seguir sus pasos. Desde entonces el gato tambien fue considerado un santo.
